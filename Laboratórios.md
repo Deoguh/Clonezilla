@@ -1,1 +1,1 @@
-Para aceder drive com Laboratórios clique [aqui](https://drive.google.com/drive/u/3/folders/1Ws0I5tdgDAk468AhHu4egZ38qzSPhu0y)
+Para aceder ao drive com Laboratórios clique [aqui](https://drive.google.com/drive/u/3/folders/1Ws0I5tdgDAk468AhHu4egZ38qzSPhu0y)
