@@ -1,1 +1,0 @@
-Para aceder ao drive com Laboratórios clique [aqui]([https://drive.google.com/drive/u/3/folders/1Ws0I5tdgDAk468AhHu4egZ38qzSPhu0y](https://eduatec-my.sharepoint.com/:f:/g/personal/diogo_silva_t0133583_edu_atec_pt/IgBnSOfG0GtzR7gmH-ZzlhamAf5wfXnxriHVHuHYrkxqHFk?e=trbo9C))
